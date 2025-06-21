@@ -1,1 +1,1 @@
-## [ONLINE VERSION](https://kirilloooo.github.io/cups/)
+## [ONLINE VERSION](https://RyuKWald.github.io/cups/)
